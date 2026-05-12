@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Premiere Pro for macOS with vip Adobe Premiere Pro for macOS Preset | 4K-export + lens-flare, the #1 preset. Includes 4K-export and lens-flare for a smoother and
 
 
 
